@@ -15,7 +15,9 @@ b) i'm moving far away so 
 
 c) i want to try my best to keep having them. 
 
-the hope is that you'll resonate with my updates and respond, rather than the random "how are you?—>(not) too many updates" texting game while we're oceans apart. feel free to reply any way-writing, voice memo, pitch black video taken in an unidentifiable alley. im game. hope you'll come along for the ride? i can start. i'm moving to taipei this year. i've gotten different reactions to the news: 
+the hope is that you'll resonate with my updates and respond, rather than the random "how are you?—>(not) too many updates" texting game while we're oceans apart. feel free to reply any way-writing, voice memo, pitch black video taken in an unidentifiable alley. im game. hope you'll come along for the ride? i can start. 
+
+i'm moving to taipei in a week. i've gotten different reactions to the news: 
 
 >_whoaaa...that's wild bro_
 >
