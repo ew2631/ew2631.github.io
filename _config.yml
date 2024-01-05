@@ -3,7 +3,7 @@
 #test4
 
 title: be my pen pal
-logo: /assets/img/travel.jpg
+#logo: /assets/img/travel.jpg
 description: i miss my homies so i write to them
 show_downloads: false
 remote_theme: pages-themes/cayman@v0.2.0
