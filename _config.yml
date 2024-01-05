@@ -2,7 +2,10 @@
 #this is a comment
 #test2
 
-title: be my pen pal
+title: blank
+first_name: Emily
+middle_name: Y.
+last_name: Wang
 description: i miss my homies so i write to them
 show_downloads: true
 remote_theme: pages-themes/cayman@v0.2.0
