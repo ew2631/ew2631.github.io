@@ -15,9 +15,13 @@ c) i want to try my best to keep having them. 
 the hope is that you'll resonate with my updates and respond, rather than the random "how are you?—>(not) too many updates" texting game while we're oceans apart. feel free to reply any way-writing, voice memo, pitch black video taken in an unidentifiable alley. im game. hope you'll come along for the ride? i can start. i'm moving to taipei this year. i've gotten different reactions to the news: 
 
 >_whoaaa...that's wild bro_
+>
 >_That's huge! I'm so excited for you._
+>
 >_Are you sure? Why?_
+>
 >_You don't have any clue what you're doing._
+>
 >_Oh wow, I had no idea. When are you leaving?_
 
 this isn't arbitrary noise; it's the response from the people i've most wanted (and needed) to update. it's a mixed bag and i’ve intentionally blocked most of it out. because for me, this is **point blank** the most consequential and least calculated decision i've made in my life. y'all know how i love to Calculate. Evaluate. Predict. but after the 2023 I've had, i laugh (helplessly) at the concept of control. To self-dictate one's future is not only an absurd ideal but an unactualized** way of living.
