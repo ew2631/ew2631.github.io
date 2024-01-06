@@ -4,6 +4,8 @@
 
 ### prologue
 
+<p align="center"><em>This is centered and italicized text</em></p>
+
 <p align="center; font-size: 10px;"><em>the following letter has been modified from its original version. it has been formatted to fit a mobile screen.</em></p>
 
 hi friends,
