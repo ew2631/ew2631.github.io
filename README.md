@@ -2,7 +2,7 @@
   <img src="/assets/img/travel.jpg" width="400" height="400"/>
 </p>
 
-### prologue
+## prologue
 
 <p align="center"><em>the following letter has been modified from its original version. it has been formatted to fit a mobile screen.</em></p>
 
