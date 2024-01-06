@@ -8,7 +8,9 @@
 
 hi friends,
 
-please know that this ~~email~~ letter is a rarely vulnerable moment from a publicly insensitive boomer so pls handle with care. im old and emotionally fragile. i'm reaching out because 
+please know that this ~~email~~ letter is a rarely vulnerable moment from a publicly insensitive boomer so pls handle with care. im old and emotionally fragile. 
+
+i'm reaching out because 
 
 a) i've appreciated the depth+dimension of our conversations but 
 
