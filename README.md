@@ -4,8 +4,21 @@
 
 ### prologue
 
-{: style="text-align: center; font-size: 42px;"}
-*This is centered, italicized, and has a font size of 42 pixels.*
+---
+layout: default
+---
+
+<style>
+  .custom-text {
+    text-align: center;
+    font-size: 42px;
+    font-style: italic;
+  }
+</style>
+
+<div class="custom-text">
+  This is centered, italicized, and has a font size of 16 pixels.
+</div>
 
 
 
