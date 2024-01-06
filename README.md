@@ -8,6 +8,8 @@
 
 <p style="text-align:center;">*the following letter has been modified from its original version. it has been formatted to fit a mobile screen.*</p>
 
+<p align="center"><em>This is centered and italicized text</em></p>
+
 hi friends,
 
 please know that this ~~email~~ letter is a rarely vulnerable moment from a publicly insensitive boomer so pls handle with care. im old and emotionally fragile. i'm reaching out because 
