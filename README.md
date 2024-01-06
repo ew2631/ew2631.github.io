@@ -4,7 +4,7 @@
 
 ### prologue
 
-<p style="text-align: center;">_the following letter has been modified from its original version. it has been formatted to fit a mobile screen._ </p>
+<p style="text-align: center;"> *the following letter has been modified from its original version. it has been formatted to fit a mobile screen.* </p>
 
 hi friends,
 
