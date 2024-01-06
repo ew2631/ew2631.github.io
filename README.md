@@ -4,9 +4,9 @@
 
 ### prologue
 
-<div style="text-align: center; font-size: 42px;">
-  <em>This is centered, italicized, and has a font size of 16 pixels.</em>
-</div>
+{: style="text-align: center; font-size: 42px;"}
+*This is centered, italicized, and has a font size of 42 pixels.*
+
 
 
 <p align="center; font-size: 10px"><em>the following letter has been modified from its original version. it has been formatted to fit a mobile screen.</em></p>
