@@ -4,25 +4,7 @@
 
 ### prologue
 
----
-layout: default
----
-
-<style>
-  .custom-text {
-    text-align: center;
-    font-size: 42px;
-    font-style: italic;
-  }
-</style>
-
-<div class="custom-text">
-  This is centered, italicized, and has a font size of 16 pixels.
-</div>
-
-
-
-<p align="center; font-size: 10px"><em>the following letter has been modified from its original version. it has been formatted to fit a mobile screen.</em></p>
+<p align="center"><em>the following letter has been modified from its original version. it has been formatted to fit a mobile screen.</em></p>
 
 hi friends,
 
