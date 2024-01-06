@@ -1,4 +1,7 @@
 <img src="/assets/img/travel.jpg" alt="drawing" width="400" height="400"/>
+<p align="center">
+  <img src="/assets/img/travel.jpg" width="400" height="400"/>
+</p>
 
 ### prologue
 
