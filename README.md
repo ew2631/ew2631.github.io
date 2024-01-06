@@ -1,4 +1,3 @@
-![Screenshot of a comment on a GitHub issue showing an image, added in the Markdown, of travel image.](/assets/img/travel.jpg)
 <img src="/assets/img/travel.jpg" alt="drawing" width="400" height="400"/>
 
 ### prologue
