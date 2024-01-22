@@ -15,13 +15,13 @@
 hi pals,
 <br>
 
-time to slip into those NB sneakers and a black turtleneck&mdash; we must enter the reality distortion field. every visionary inevitably sees the limits of the West \*sigh\* and travels East to evolve. Steve Jobs, Alexander the Great, even Kanye has a Japanese inspired living room. I'm in good company, no? 
+time to slip on those NB sneakers and a black turtleneck&mdash; we must enter the reality distortion field. every visionary inevitably sees the limits of the West \*sigh\* and travels East to evolve. Steve Jobs, Alexander the Great, even Kanye has a Japanese inspired living room. I'm in good company, no? 
 
-the vision: to find my other half. women love to multi-task, especially with self-identities. this other half, she inhabits a contrasting but complimentary persona-more discerning with her words (bc she knows fewer in Mandarin) and careful with her actions (bc it's harder for foreigners to get out of jail).
+the vision: to find my other half. women love to multi-task, especially with self-identities. this other half, she embodies a contrasting but complimentary persona: more discerning with her words (bc she knows fewer in Mandarin) and careful with her actions (bc it's harder for foreigners to get out of jail).
 
-she knows how to do the real job: a balancing act of maximizing the 9 to 6* and minimizing unhealthy association of work to self-worth. this job, this career is not the forever goal&mdash; I've got some soul searching to do before I commit to the career bit. 
+she knows how to do the *real* job: a balancing act of maximizing the 9 to 6* and minimizing unhealthy association of work to self-worth. this job, this career is not the forever goal&mdash; I've got some soul searching to do before I commit to the career bit. 
 
-she honestly feels a bit vain. great style never hurt a (wo)man, but overvaluing appearance-yours and others-is akin to worshipping fruit: the outside wrinkles first then the inside rots too.** I don't want to hate myself for wanting to be attractive, just to enjoy while it lasts? because...it won't D: 
+she honestly feels a bit vain. great style never hurt a (wo)man, but overvaluing appearance-yours and others-is akin to worshipping fruit: the outside wrinkles first then the inside rots too.** I don't want to hate myself for wanting to be attractive, just to enjoy it while it lasts? because...it won't D: 
 
 hopefully, she meets friends who show her what it truly means to be Taiwanese. she finds a few local haunts where generous aunties know her by name. she discovers a seaside town or natural wonder that she'll revisit with the future kids. husband optional, but preferred. altogether, she'll find a part of this island to call home.
 
@@ -34,6 +34,7 @@ so why the reality distortion field? this all seems cute n' cozy, quite doable. 
 >_bartending on weekends leads to indulging on expensive spirits and even more expensive men_
 >
 >_I become a [kawaii girl](https://www.ibentoy.com/blog/kawaii-drawings)...?! (alright now we're being a bit absurd >.<)_
+>
 >
 the decision tree permutations are endless.  
 
