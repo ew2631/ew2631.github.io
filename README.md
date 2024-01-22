@@ -14,6 +14,7 @@
 
 hi pals,
 <br>
+<br>
 
 time to slip on those NB sneakers and a black turtleneck&mdash; we must enter the reality distortion field. every visionary inevitably sees the limits of the West \*sigh\* and travels East to evolve. Steve Jobs, Alexander the Great, even Kanye has a Japanese inspired living room. I'm in good company, no? 
 
