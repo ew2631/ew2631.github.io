@@ -34,8 +34,8 @@ so why the reality distortion field? this all seems cute n' cozy, quite doable. 
 >_bartending on weekends leads to indulging on expensive spirits and even more expensive men_
 >
 >_I become a [kawaii girl](https://www.ibentoy.com/blog/kawaii-drawings)...?! (alright now we're being a bit absurd >.<)_
->
->
+
+
 the decision tree permutations are endless.  
 
 if you're a returning reader, you'll remember that I had a shite 2023. so I've decided that when life gives you lemons...question everything.
