@@ -1,6 +1,42 @@
 <p align="center">
   <img src="/assets/img/travel.jpg" width="400" height="400"/>
 </p>
+<br>
+<br>
+
+## chapter ii &mdash; ~~do the job~~  tricks of the lonely trade | 2024/03/25
+<br>
+<br>
+
+<p align="center">
+  <img src="/assets/img/bitan.jpg" width="800" height="400"/>
+</p>
+<br>
+
+hi pals,
+<br>
+<br>
+when I was decided taipei was the next step, the goal was to secure a real job before the move, although I was deeply flattered by those who thought I had the nerve to come just to \~find myself\~ (thanks ethan). in a double edged fashion, my job has been calm and uneventful so far. unfortunately, there's nothing worse than the dreaded \*free time\* when you've caught a bad case of the lonelies. 
+
+I'm not homesick for places, just people. I miss familiar faces who know what I need and what kind of person I'm striving to be. I miss using the full evocative power of language available only to true native speakers. every day is a game of comparison, how this or that is different from my experiential baseline. with only unknowns outside my door, I miss knowing how to even start my day.
+ 
+thankfully, I've already climbed the deepest valleys of this discomfort and can see ridges on the happier horizon. I didn't want to put y'all through the worst of my woes (oh yea, I can get even more drAmaTic) so thanks for waiting for me on the other side. now that we're here, I'm happy to share some tricks of the lonely trade:
+
+***eat, exercise, eat better:*** exercise helps you viscerally understand how shitty you’ve been to your body. it’s a great motivator for eating healthy because you more immediately feel the benefits of thankless self-deprivation. developing these habits together is also very time intensive and cuts down on that pesky free time you want to avoid.
+
+***other world immersion:*** in loneliness we often dwell, making it feel that much longer. being in your own head can actually be an amazing thing, especially with the help of video games, reading, art making&mdash; anything that requires active participation. I took the sci-fi route and learned a lil something about cosmic sociology. as the kids say, if you know ya know #darkforest
+
+***scenery with a soundtrack:*** find nature, a landscape where life actively hums in the background-less desert vibes and more running water, thick foliage, oh shit it’s a squirrel vibes. even if you're alone, being a dot in a living macbook background feels less lonesome and more peaceful. spend one day somewhere like this, and you'll find that inflection point.
+
+disclaimer: I took my advice roughly 2/3 of the time. the YouTube algo sedated me the rest of the way with wild cooking reels and John Oliver rants ¯\_(ツ)_/¯ I’m only human my friends.
+
+always my best,
+
+emily
+
+<br>
+<br>
+<br>
 
 
 ## chapter i &mdash; create the vision | 2024/01/21
