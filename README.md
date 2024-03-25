@@ -20,7 +20,7 @@ when I was decided taipei was the next step, the goal was to secure a real job 
 
 I'm not homesick for places, just people. I miss familiar faces who know what I need and what kind of person I'm striving to be. I miss using the full evocative power of language available only to true native speakers. every day is a game of comparison, how this or that is different from my experiential baseline. with only unknowns outside my door, I miss knowing how to even start my day.
  
-thankfully, I've already climbed the deepest valleys of this discomfort and can see ridges on the happier horizon. I didn't want to put y'all through the worst of my woes (oh yea, I can get even more drAmaTic) so thanks for waiting for me on the other side. now that we're here, I'm happy to share some tricks of the lonely trade:
+thankfully, I've already climbed the deepest valleys of this discomfort and can see ridges on the happier horizon. I didn't want to put y'all through the worst of my woes (oh yea I can get even more drAmaTic) so thanks for waiting for me on the other side. now that we're here, I'm happy to share some tricks of the lonely trade:
 
 ***eat, exercise, eat better:*** exercise helps you viscerally understand how shitty you’ve been to your body. it’s a great motivator for eating healthy because you more immediately feel the benefits of thankless self-deprivation. developing these habits together is also very time intensive and cuts down on that pesky free time you want to avoid.
 
