@@ -4,7 +4,7 @@
 <br>
 <br>
 
-## chapter ii &mdash; ~~do the job~~  tricks of the lonely trade | 2024/03/25
+## chapter ii &mdash; ~~do the job~~       tricks of the lonely trade | 2024/03/25
 <br>
 <br>
 
@@ -28,7 +28,7 @@ thankfully, I've already climbed the deepest valleys of this discomfort and can
 
 ***scenery with a soundtrack:*** find nature, a landscape where life actively hums in the background-less desert vibes and more running water, thick foliage, oh shit it’s a squirrel vibes. even if you're alone, being a dot in a living macbook background feels less lonesome and more peaceful. spend one day somewhere like this, and you'll find that inflection point.
 
-disclaimer: I took my advice roughly 2/3 of the time. the YouTube algo sedated me the rest of the way with wild cooking reels and John Oliver rants ¯\_(ツ)_/¯ I’m only human my friends.
+disclaimer: I took my advice roughly 2/3 of the time. the YouTube algo sedated me the rest of the time with wild cooking reels and John Oliver rants ¯\\_(ツ)_/¯ I’m only human my friends.
 
 always my best,
 
