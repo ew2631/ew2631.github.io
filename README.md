@@ -4,6 +4,37 @@
 <br>
 <br>
 
+## chapter iii &mdash; living life impromptu | 2024/07/19
+<br>
+<br>
+hi pals,
+<br>
+<br>
+as an expat, it’s natural for locals and expats alike to ask you the same question: why did you come to taipei? for a while, I felt dissatisfied with my own response, a disorganized ramble about my familial roots and hopes of learning Mandarin. sometimes, i'd add the context that I was in between jobs at the time and feeling lukewarm about the bicoastal migration all my friends and their friends do in their 20s. the moving backdrop of these conversations included traveling back to california and hong kong for work while actively integrating with an incredibly diverse social ecosystem here. finally, while spacing out in my favorite local coffee shop one night, the real answer came to me, short and bittersweet. I left because I had no reason to stay.
+<br>
+<br>
+
+it is a painful admission, and I hope it’s not perceived as a personal critique of any or all of you. if know me, you know that my adventurous, carefree persona was preceded by someone far more risk-averse and committed-oriented. she would never choose an exciting and transient lifestyle over a community built around shared interests, social purpose rooted in deep relationships or even, dare I admist, the right life partner. before leaving, I had none of those things. 
+
+
+after the move, three things have became clear- ***one:*** I’m currently in the emotional state and age where I want relationships of depth. as difficult as those are to cultivate from scratch here, my closest friends were already randomly scattered across the states and I was as single there as I am here. there was no opportunity cost to leaving, only a chance to find what I was looking for in a more unexpected place.  
+
+***two:*** actively searching for a boyfriend feels: not right. a relationship doesn’t feel wrong - I’ve dated here with varying degrees of failure and come away each time knowing that I always was and still am a monogamist. but the dating chase feels too, one dimensional? I get to know mr. guy with the only intention of dating and if that doesn’t pan out, the likelihood that we both are emotionally mature and invested enough (but not too much) to parlay this into a friendship is like, none? I’m not a fan of putting in an emily-level of effort to know someone when the life expectancy of the connection is shorter than single use plastic. It’s just a bit sad, no? more thoughts to come on this...maybe ;)
+
+***three:*** while I am emotionally untethered, I am also free. among my flawed strengths, I am a maximalist who recognizes that this is the time to embody the alt-Emily as freely and selfishly as I want. I’m many things in adulthood that I never was as my younger self: daring, feminine, free(er) spirited. I can go camping with my male friend and not worry about jealousy issues from a boyfriend I don’t have. I can dress up without wondering if my choices were swayed more by my partner's physical preferences than my own. I can travel anywhere, anytime without the guilt of leaving someone behind. 
+
+I decided not to do the last one. I like traveling, but I love it when it’s scarce and in good company. instead, I’ve invested in mandarin classes that require in-person attendance starting at 8am. every day. putting down roots takes longer than a good vacation story does because it lasts longer. improving my language skills is mundane and humbling but brings color to my daily life.
+
+in retrospect, I can now accept that my first attempt at adulting left me unfulfilled and wanting. so that’s the other reason I’m here. I’m looking forward with none of the answers in hand, living life impromptu.
+
+always my best,
+
+emily
+
+<br>
+<br>
+<br>
+
 ## chapter ii &mdash; ~~do the job~~       tricks of the lonely trade | 2024/03/25
 <br>
 <br>
