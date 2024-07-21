@@ -14,7 +14,7 @@ as an expat, it’s natural for locals and expats alike to ask you the same ques
 <br>
 <br>
 
-it is a painful admission, and I hope it’s not perceived as a personal critique of any or all of you. if know me, you know that my adventurous, carefree persona is preceded by someone far more risk-averse and committed-oriented. she would never choose an exciting and transient lifestyle over a community built around shared interests, social purpose rooted in deep relationships or even, dare I admist, the right life partner. before leaving, I had none of those things. 
+it is a painful admission, and I hope it’s not perceived as a personal critique of any or all of you. if know me, you know that my adventurous, carefree persona is preceded by someone far more risk-averse and committed-oriented. she would never choose an exciting and transient lifestyle over a community built around shared interests, social purpose rooted in deep relationships or even, dare I admit, the right life partner. before leaving, I had none of those things. 
 
 
 after the move, three things have became clear- ***one:*** I’m currently in the emotional state and age where I want relationships of depth. as difficult as those are to cultivate from scratch here, my closest friends were already randomly scattered across the states and I was as single there as I am here. there was no opportunity cost to leaving, only a chance to find what I was looking for in a more unexpected place.  
