@@ -4,6 +4,34 @@
 <br>
 <br>
 
+## chapter iv &mdash; biking | 2025/04/03
+<br>
+<br>
+hi pals,
+<br>
+<br>
+in taipei, public bikes are ubiquitiously available and free for the first 30min of the ride. it's taken me some time to figure out the best biking blueprint - where to avoid the uneven sidewalks and make the right turns onto bikepaths hidden in the center dividers. it's the best way to live and breathe the city while being a part of it. being familiar with a place means knowing what side of the street to be on. 
+
+<br>
+<br>
+
+in taipei, the crosswalks take a notoriously long time. if you miss a light, it could cost you anywhere from 30 secs to 5 minutes. when making certain turns, riding in the direction opposite to foot traffic means you can avoid an extra street crossing. if there's very few people around, the main question is -- are you willing to go against the flow? and let people watch while you do it?
+
+my move to taiwan has felt like a contant ride on the opposite side of the road. every so often, another passerby will give me that look - why did you come all the way to Asia, when everyone is still trying to go to the West? The self-assurance that I knew why I came here and the belief I could handle this life, in that moment, weakens.
+
+It can't be left unsaid that this underlying conundrum is largely impacted - but not entirely caused - by my new and undeniably stressful job. I had the opportunity to take a really challenging role where I knew I would both learn and struggle tremendously, and I have. I'm in the uphill part of the ride, so most days are just pushing the pedal one more time. other days, I get off the bike entirely and rest. the job isn't only you and you are not only your job. 
+
+so if you're going to ride on the wrong side of the street, it's best to just focus on the road ahead. you're the only one who needs to know where you're going anyways :)
+
+always my best,
+
+emily
+<br>
+<br>
+
+<br>
+<br>
+<br>
 ## chapter iii &mdash; living life impromptu | 2024/07/19
 <br>
 <br>
