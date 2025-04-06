@@ -18,7 +18,7 @@ my move to taiwan has felt like a constant ride going against the flow of the ro
 
 this inner struggle has been largely impacted - but not entirely caused - by my new and undeniably stressful job. I had the opportunity to take a really challenging role where I knew I would both learn and struggle tremendously, and I have. I'm in the uphill part of the ride, so most days are just pushing the pedal forward one more time. other days, I get off the bike entirely and rest. the job isn't only you and you are not only your job. 
 
-so if you're going to ride against the flow of the road, it's best to just focus on the road ahead. you're the only one who needs to know where you're going anyways :)
+so if you're going to ride against the flow of the road, it's best to just focus what's ahead. you're the only one who needs to know where you're going anyways :)
 
 always my best,
 
