@@ -12,9 +12,6 @@ hi pals,
 <br>
 in taipei, public bikes are ubiquitiously available and free for the first 30min of the ride. it's taken me some time to figure out the best biking blueprint - where to avoid the uneven sidewalks and make the right turns onto bikepaths hidden in the center dividers. to me, it's the easiest way to live and breathe the city while being a part of it.
 
-<br>
-<br>
-
 but the crosswalks take a notoriously long time. if you miss a light, it could cost you anywhere from 30 secs to 5 minutes. when planning to make upcoming turns, riding in the direction opposite to foot traffic means you can avoid an extra street crossing. realistically, you're a minimal disturbance if there's very few people around. the question is more if you're willing to go against the flow -and let people watch while you do it. 
 
 my move to taiwan has felt like a constant ride going against the flow of the road. every so often, another passerby will give me that look: why did you come all the way to Asia, when everyone is still trying to go to the West? in those moments, the self-assurance that I knew why I came here and the belief I could handle this life, weakens.
