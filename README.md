@@ -15,7 +15,7 @@ it never occurred to me why the terms expat and immigrant existed until I was a 
 
 I’d always been uncomfortable with the unspoken expat label. my taiwanese heritage meant I looked like I belonged, but created this internal pressure to prove it. staying was something I could choose to pursue rather than needed to survive. for a while, I ignored this privilege of an alternative life path back to the states that many local taiwanese would take in a heartbeat. I found a full-time job where most of work was done in Mandarin, and all my coworkers were locals. I calibrated my personality to meet the cultural standards of communicating indirectly, displaying confidence with humility, and maximizing efficacy over creativity. I stopped going to my favorite volleyball meetups, worried that hanging out with Americans would keep me in the expat bubble.
 
-in the end, I did eventually leave. my job was unsustainable, forcing me to look for other options, and I knew that staying in Taipei would severely limit my career options. privilege is a tricky thing – you resent how it takes away the credit you feel you deserve, but it feels foolish to refuse an advantage for the sake of pride. the struggle with my carer had been dragging endlessly and it had followed me halfway around the world. i wasn't ready, but it was time to go home.
+in the end, I did eventually leave. my job was unsustainable, forcing me to look for other options, and I knew that staying in Taipei would severely limit my career options. privilege is a tricky thing – you resent how it takes away the credit you feel you deserve, but it's foolish to refuse an advantage for the sake of pride. the struggle with my carer had been dragging endlessly and it had followed me halfway around the world. I wasn't ready, but it was time to go home.
 
 I subjected myself to a cringe walk down memory, to remember who I envisioned as my “other half” when I first moved:
 
@@ -23,12 +23,11 @@ I subjected myself to a cringe walk down memory, to remember who I envisioned as
 
 > she knows how to do the real job: a balancing act of maximizing the 9 to 6* and minimizing unhealthy association of work to self-worth. this job, this career is not the forever goal— I’ve got some soul searching to do before I commit to the career bit
 
->
 the complimentary persona is an interesting one – I’m actually not sure if this will persist once I get past the reverse culture shock of moving back. more on that later.
->
+
 as for the real job, my major accomplishment of 2025 was removing the greatest obstacle to pivoting careers – myself. I’ve already started my way up a new career mountain, in full uphill mode. have I maximized my 9 to 6? some promising initial signals: I don’t miss my old job. not one damn bit.
 >
-I’ve missed writing for this blog and don’t intend to let my return stateside to be an excuse to stop writing. i have a few more interesting stories left in me.
+I’ve missed writing for this blog and don’t intend to let my return stateside to be an excuse to stop writing. I have a few more interesting stories left in me.
 
 always my best,
 
