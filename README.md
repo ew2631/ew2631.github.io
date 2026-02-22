@@ -26,7 +26,7 @@ I subjected myself to a cringe walk down memory, to remember who I envisioned as
 the complimentary persona is an interesting one – I’m actually not sure if this will persist once I get past the reverse culture shock of moving back. more on that later.
 
 as for the real job, my major accomplishment of 2025 was removing the greatest obstacle to pivoting careers – myself. I’ve already started my way up a new career mountain, in full uphill mode. have I maximized my 9 to 6? some promising initial signals: I don’t miss my old job. not one damn bit.
->
+
 I’ve missed writing for this blog and don’t intend to let my return stateside to be an excuse to stop writing. I have a few more interesting stories left in me.
 
 always my best,
